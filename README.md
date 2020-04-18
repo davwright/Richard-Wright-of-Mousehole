@@ -5,8 +5,10 @@ Biography of Richard Wright of Mousehole (1743-1804)
 the [Raid on Mounts Bay](https://en.wikipedia.org/wiki/Raid_on_Mount%27s_Bay) occured in 1595 when the Spanish attacked and burned Mousehole and Paul, desotroying the church in Paul [St Pol de Léon](https://en.wikipedia.org/wiki/St_Pol_de_L%C3%A9on%27s_Church,_Paul) along with all records.  
 [extensive Wright family tree in Mousehole from 1580](http://www.mygenealogies.co.uk/Wright/WRIG-T6.htm)
 
-## John Wesley in Mousehole
-John Harvey lead a Methodist group in his house in Mousehole
+## John Wesley (1703 - 1791) in Mousehole
+Wesley visits Cornwall in 1743, 1746  
+Wesley preaches to 23,000 at (Gwenap pit)[https://en.wikipedia.org/wiki/Gwennap], Cornwall, September 1, 1781.   He preached there 18 times betweeh 1762 and 1789.  
+John Harvey lead a Methodist society in his house in Mousehole
 
 
 ## George Whitfield in America 7 times during 1738-1770
