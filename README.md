@@ -21,11 +21,11 @@ https://archive.org/details/lettersjohnwesl00birrgoog/page/n289/mode/2up/search/
 
 ## Francis Asbury
 "Prophet of the Long Road" by Ezra Squier Tipple  
-
+[Francis Asbury: A Flame Spirit (Short Documentary)](https://www.youtube.com/watch?v=7-ag7WwJZYQ#action=share)  
+The University of Manchester has a Francis Asbury collection In their Methodist collections
 
 ## Circuit Preacher in Cornwall
-
-Methodist records show Richard Wright itinerating in Cornwall for a few years after returning from America.
+The footnotes to Asbury's diary say Wright was in Cornwall after US for 3 years "before he disappears from the minutes" - which means he's mentioned in the Methodist minutes from 1774 to 1777.
 
 ## Marriage and Family
 
