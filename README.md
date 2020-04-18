@@ -17,7 +17,8 @@ George Whitfield traveled from Georgia to New England in 1738 and visited Americ
 ## Young Richard
 William Carvosso of Mousehole May 1771, talking about the methodist group lead by John Harvey, and Richard Wright going to America [34, The Great Efficacy]
 
-## 1769 America
+## 1769 Methodist Conference Leeds
+*We have a pressing call from our brethren at New-York, who have built a preaching-house, to come over and help them. Who was willing to go? Richard Boardman and Joseph Pilmoor. what can we do further, in token of our brotherly love? Let us now make a collection among ourselves. This was immediately done, and out of it £50 were alloted towards the payment of their debt; and about £20 given to the brethren for their passage.* \[Compendium 194]
 *In 1769 Richard Boardman and Joseph Pillmoor came to the assistance of the infant societies [in America]. These were the first regular travelling ministers on the continent. They meeting with much success, and being able to report great openings for the spread of the gospel in America, in 1771 Francis Asbury and Richard Wright were sent over. Before this, the work had been principally confined to the cities; but Mr. Asbury, per that the country people more readily received the truth than those in the cities, led the way into the towns, villages, and sparsely populated places in the interior, in which he met with anticipated success; and it may justly be remarked that, to this day [1838]* [page 291, Review 20]
 ## Methodist Itinerancy 1770
 Richard *had been received on trial into the Methodist Itinerancy*
@@ -87,3 +88,4 @@ There were 100 Wrights in Mousehole in 1851 http://www.mygenealogies.co.uk/Wrigh
 1. [The Methodist Magazine and Quarterly Review, Volume 20, 1838](https://books.google.at/books?id=GpEeAQAAMAAJ)  
 1. [A Review of the Missionary Life and Labours of Richard Wright, 1824](https://play.google.com/books/reader?id=pgsLAAAAYAAJ)  
 1. [The Great Efficacy of Simple Faith in the Atonment of Christ Exemplified in a Memoir of Mr William Carvosso, Sixty years a class-leader in the Wesley Methodist Connection](https://play.google.com/books/reader?id=vEZEAQAAMAAJ)  
+1. [A Compendium of the Laws and Regulations of Wesleyan Methodism](https://books.google.at/books?id=8wxDAQAAMAAJ)
