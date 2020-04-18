@@ -46,3 +46,4 @@ He describes 500 listening in Newlyn sitting on grass, sand and rocks, many of t
 ## Notes
 There were 100 Wrights in Mousehole in 1851 http://www.mygenealogies.co.uk/Wright/WRIG-SUM.htm
  
+![image](https://user-images.githubusercontent.com/17625240/79643572-e2074100-81a3-11ea-8d42-8028577d736e.png)
