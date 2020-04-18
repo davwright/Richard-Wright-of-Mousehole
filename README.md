@@ -2,7 +2,8 @@
 Biography of Richard Wright of Mousehole (1743-1804)
 
 ## Ancestry
-[extensive Wright family tree in Moushole](http://www.mygenealogies.co.uk/Wright/WRIG-T6.htm)
+the [Raid on Mounts Bay](https://en.wikipedia.org/wiki/Raid_on_Mount%27s_Bay) occured in 1595 when the Spanish attacked and burned Mousehole and Paul, desotroying the church in Paul [St Pol de Léon](https://en.wikipedia.org/wiki/St_Pol_de_L%C3%A9on%27s_Church,_Paul) along with all records.
+[extensive Wright family tree in Mousehole from 1580](http://www.mygenealogies.co.uk/Wright/WRIG-T6.htm)
 
 ## John Wesley in Mousehole
 John Harvey lead a Methodist group in his house in Mousehole
