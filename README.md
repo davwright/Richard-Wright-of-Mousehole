@@ -18,7 +18,8 @@ John Harvey lead a Methodist society in his house in Mousehole
 
 
 ## George Whitfield in America 7 times during 1738-1770
-George Whitfield traveled from Georgia to New England in 1738 and visited America 7 times until his death in 1770. He *formed no socieities of his own, but left his converts to the care of the ordinary pastors.. \[but\] the leaven of Calvinism soon destroying fair fruits; while it is remarkable that the same work in England, under Mr. Wesley, assisted by **young and illiterate lay-preachers**, guided by a differenst system of doctrine and discipline, constantly flourished.* (page 290, Query)
+George Whitfield traveled from Georgia to New England in 1738 and visited America 7 times until his death in 1770. He *formed no socieities of his own, but left his converts to the care of the ordinary pastors.. \[but\] the leaven of Calvinism soon destroying fair fruits; while it is remarkable that the same work in England, under Mr. Wesley, assisted by **young and illiterate lay-preachers**, guided by a differenst system of doctrine and discipline, constantly flourished.* (page 290, Query)  
+John Wesley focuses attention on America after the death of George Whitfield.
 
 ## Young Richard
 William Carvosso of Mousehole May 1771, talking about the methodist group lead by John Harvey, and Richard Wright going to America [34, The Great Efficacy]
