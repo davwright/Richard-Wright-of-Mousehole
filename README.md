@@ -1,8 +1,14 @@
-# Richard Wright of Mousehole
-Biography of Richard Wright of Mousehole (1743-1804)
+# Richard Wright of Mousehole (1743-1804)
+
+## Mousehole
+Mousehole is a fishing village in the South West corner of Cornwall only 10 km from Land's End.
+Cornwall was a rebellious place, it did not like being controlled from faraway London. Cornwall had provided tin for thousands of years and sheep in modern times. 
+The [Cornish Rebellion of 1497](https://en.wikipedia.org/wiki/Cornish_Rebellion_of_1497) was about taxes raised to fight Scotland.  
+Cornwall and Devon [revolted](https://en.wikipedia.org/wiki/Prayer_Book_Rebellion) in 1549 against the introduction of the Book of Common Prayer, partially because it was in the English language. The Spanish took note of this thinking the Cornish might be allies with them against the protestant English. 
+During the [Raid on Mounts Bay](https://en.wikipedia.org/wiki/Raid_on_Mount%27s_Bay) Spanish galleys bombarded Mousehole on 2 August 1595 damaging all but one house and killing 3. A second group of Spaniards moved inland and sacked Paul, desotroying the [St Pol de Léon](https://en.wikipedia.org/wiki/St_Pol_de_L%C3%A9on%27s_Church,_Paul)  church along with all church records. Inhabitants of Mousehole were christened, married and buried in Paul.
 
 ## Ancestry
-the [Raid on Mounts Bay](https://en.wikipedia.org/wiki/Raid_on_Mount%27s_Bay) occured in 1595 when the Spanish attacked and burned Mousehole and Paul, desotroying the church in Paul [St Pol de Léon](https://en.wikipedia.org/wiki/St_Pol_de_L%C3%A9on%27s_Church,_Paul) along with all records.  
+Richard Wright's ancestry can be traced back 5 generations to the Mousehole fisherman Martin Wright (1580-1620), who lived through the Spanish raid of 1595. Martin had a son John, followed by 3 generations of Martins, until Richard is born, the younger brother of Martin and John. 
 [extensive Wright family tree in Mousehole from 1580](http://www.mygenealogies.co.uk/Wright/WRIG-T6.htm)
 
 ## John Wesley (1703 - 1791) in Mousehole
