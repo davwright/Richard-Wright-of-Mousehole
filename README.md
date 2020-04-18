@@ -45,7 +45,7 @@ http://www.historicstgeorges.org/museum
 ## 1774
 *17 preachers and 2,073 members* (page 292, The Methodist Query, Vol 20)
 ## 1775
-*As the leading preachers were Englishmen, and avowedly attached to the interests of the mother country, they all left the country before the close of 1778, except Mr Asbury, who, being ardently attached to the infant socieites, now deserted by their chief shepherds, resolved to remain with them through those troublous times.* (page 292, Query)
+*As the leading preachers were Englishmen, and avowedly attached to the interests of the mother country, they all left the country before the close of 1778, except Mr Asbury, who, being ardently attached to the infant socieites, now deserted by their chief shepherds, resolved to remain with them through those troublous times.* (page 292, Query)  
 *Martin Rodda and James Dempster were sent over; but the success of these men was not as great as could have been desired. They soon returned to England. \[...\] Mr Wesley's plan was to send two preachers every two years, which continued till eight were sent, and then the war \[of Independence\] prevented more* (Page 202, Query, Vol 20) 
 
 ## Francis Asbury
