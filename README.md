@@ -38,11 +38,14 @@ http://www.historicstgeorges.org/museum
 ## 1772
 
 ## 1773
+*The first conference was held in Philadelphia. There were now 10 preachers and 1,160 members in the societies. At this time American preachers were reaised up and called into the work* \[Page 292, Vol20\]
+
 *Soon after this, Messrs. Boardman and Pillmoor were recalled, and in 1773 Thomas Rankin and George Shadford were sent in their places. Mr Rankin was endowed with certain disciplinary powers for the regulation of the societies by Mr Wesley, as none others possessed before him. Of this there was much need, for before this discipline was almost wholly neglected, and many persons were connected with the societies who were not heartily attached to Methodism, of which things Mr. Asbury very much complains before this. These men were made a very great blessing to the people - Mr. Rankin, as a superintendent, in introducing discipline was almost wholly neglected, and many persons were connected with the societies who were not heartily attached to Methodism, of which things Mr. Asbury very much complains before this."* (page 292, The Methodist Query, Vol 20)
 
 ## 1774
-
+*17 preachers and 2,073 members* (page 292, The Methodist Query, Vol 20)
 ## 1775
+*As the leading preachers were Englishmen, and avowedly attached to the interests of the mother country, they all left the country before the close of 1778, except Mr Asbury, who, being ardently attached to the infant socieites, now deserted by their chief shepherds, resolved to remain with them through those troublous times.* (page 292, Query)
 *Martin Rodda and James Dempster were sent over; but the success of these men was not as great as could have been desired. They soon returned to England. \[...\] Mr Wesley's plan was to send two preachers every two years, which continued till eight were sent, and then the war \[of Independence\] prevented more* (Page 202, Query, Vol 20) 
 
 ## Francis Asbury
