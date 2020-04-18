@@ -7,7 +7,7 @@ the [Raid on Mounts Bay](https://en.wikipedia.org/wiki/Raid_on_Mount%27s_Bay) oc
 
 ## John Wesley (1703 - 1791) in Mousehole
 Wesley visits Cornwall in 1743, 1746  
-Wesley preaches to 23,000 at (Gwenap pit)[https://en.wikipedia.org/wiki/Gwennap], Cornwall, September 1, 1781.   He preached there 18 times betweeh 1762 and 1789.  
+Wesley preaches to 23,000 at [Gwenap pit](https://en.wikipedia.org/wiki/Gwennap), Cornwall, September 1, 1781.   He preached there 18 times betweeh 1762 and 1789.  
 John Harvey lead a Methodist society in his house in Mousehole
 
 
