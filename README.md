@@ -39,8 +39,12 @@ http://www.historicstgeorges.org/museum
  John Wesley did not mention Richard in his letters between 1771-1775 http://wesley.nnu.edu/john-wesley/the-letters-of-john-wesley/wesleys-letters-1775/
 
 ## 1773
-*Soon after this, Messrs. Boardman and Pillmoor were recalled, and in 1773 Thomas Rankin and George Shadford were sent in their places. Mr Rankin was endowed with certain disciplinary powers for the regulation of the societies by Mr Wesley, as none others possessed before him. Of this there was much need, for before this discipline was almost wholly neglected, and many persons were connected with the societies who were not heartily attached to Methodism, of which things Mr. Asbury very much complains before this. These men were made a very great blessing to the people - Mr. Rankin, as a superintendent, in introducing discipline was almost wholly neglected, and many persons were connected with the societies who were not heartily attached to Methodism, of which things Mr. Asbury very much complains before this."* (page 292, The Methodist Qurery, Vol 20)
+*Soon after this, Messrs. Boardman and Pillmoor were recalled, and in 1773 Thomas Rankin and George Shadford were sent in their places. Mr Rankin was endowed with certain disciplinary powers for the regulation of the societies by Mr Wesley, as none others possessed before him. Of this there was much need, for before this discipline was almost wholly neglected, and many persons were connected with the societies who were not heartily attached to Methodism, of which things Mr. Asbury very much complains before this. These men were made a very great blessing to the people - Mr. Rankin, as a superintendent, in introducing discipline was almost wholly neglected, and many persons were connected with the societies who were not heartily attached to Methodism, of which things Mr. Asbury very much complains before this."* (page 292, The Methodist Query, Vol 20)
 
+## 1774
+
+## 1775
+Martin Rodda and James Dempster were sent over; but the success of these men was not as great as could have been desired. They soon returned to England. (Page 202, Query, Vol 20)  
 ## Francis Asbury
 "Prophet of the Long Road" by Ezra Squier Tipple  
 [Francis Asbury: A Flame Spirit (Short Documentary)](https://www.youtube.com/watch?v=7-ag7WwJZYQ#action=share)  
