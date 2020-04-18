@@ -76,7 +76,12 @@ Prudence Johns
 
 ## Descendents
 
-His son Martin Wright, married Elizabeth Harvey, daughter of Alexander and Margaret Harvery. Alexander was the son of John Harvey and Elizabeth Over.
+* Martin Wright (1780-1854), married Elizabeth Harvey, daughter of Alexander and Margaret Harvery. Alexander was the son of John Harvey and Elizabeth Over, who ran the Mousehole Methodist Society. *The name Harvey was passed down through the Wright family for 8 generations to Donald Harvey Wright (193?-2014)*
+* Joseph Wright (1808-1852), married Arabella Rowse and emigrated to South Australia in November 1836, arriving at Kingscote in April 1837, as head of fisheries for the South Australian company, paid £110/year. With him came the 3 Germain brothers - the 4 of them together were a seine net fishing team. George Fife Angas intended to make Kingscote the "Singapore of the South", which failed due to lack of drinking water. Jospeh Wright wrote a letter of complaint to Angas in London in October 1837 and Kingscote was abandoned by 1839, by which time Joseph and Arabella were living in a tent in Alberton, Port Adelaide.
+* Peter Harvey Wright (1839-1916), born in a tent. Vet, shoemaker, Port Adelaide politician and itinerant methodist lay preacher.
+* Charles Joseph Harvey Wright (1864-1943), lawyer in Port Adelaide. farmer in Mid North.
+* Norman Harvey Wright (1894-1974), Methodist missionary to Fiji from 1926 to 1956.
+* Harlan Wright (1942-), 8th generation Methodist, missionary to Philippines and Singapore.
 
 ## Other Richard Wrights in Mousehole
 Richard Wright, fisherman Mousehole 1767-1841 https://www.findagrave.com/memorial/197702604/richard-wright
