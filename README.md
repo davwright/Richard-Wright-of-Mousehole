@@ -2,7 +2,7 @@
 Biography of Richard Wright of Mousehole (1743-1804)
 
 ## Ancestry
-the [Raid on Mounts Bay](https://en.wikipedia.org/wiki/Raid_on_Mount%27s_Bay) occured in 1595 when the Spanish attacked and burned Mousehole and Paul, desotroying the church in Paul [St Pol de Léon](https://en.wikipedia.org/wiki/St_Pol_de_L%C3%A9on%27s_Church,_Paul) along with all records.
+the [Raid on Mounts Bay](https://en.wikipedia.org/wiki/Raid_on_Mount%27s_Bay) occured in 1595 when the Spanish attacked and burned Mousehole and Paul, desotroying the church in Paul [St Pol de Léon](https://en.wikipedia.org/wiki/St_Pol_de_L%C3%A9on%27s_Church,_Paul) along with all records.  
 [extensive Wright family tree in Mousehole from 1580](http://www.mygenealogies.co.uk/Wright/WRIG-T6.htm)
 
 ## John Wesley in Mousehole
@@ -14,8 +14,14 @@ William Carvosso of Mousehole May 1771, talking about the methodist group lead b
 ## Methodist Congress 1770
 
 ## In British America September 1771 to 1774
+https://archive.org/details/lettersjohnwesl00birrgoog/page/n289/mode/2up/search/richard+wright
+![image](https://user-images.githubusercontent.com/17625240/79643368-ec750b00-81a2-11ea-8453-312abb1bd207.png)  
 
-Francis Asbury
+ John Wesley did not mention Richard in his letters between 1771-1775 http://wesley.nnu.edu/john-wesley/the-letters-of-john-wesley/wesleys-letters-1775/
+
+## Francis Asbury
+"Prophet of the Long Road" by Ezra Squier Tipple  
+
 
 ## Circuit Preacher in Cornwall
 
