@@ -9,7 +9,7 @@ the [Raid on Mounts Bay](https://en.wikipedia.org/wiki/Raid_on_Mount%27s_Bay) oc
 John Harvey lead a Methodist group in his house in Mousehole
 
 ## Young Richard
-William Carvosso of Mousehole May 1771, talking about the methodist group lead by John Harvey, and Richard Wright going to America https://play.google.com/books/reader?id=vEZEAQAAMAAJ&hl=en_AU&pg=GBS.PA34
+William Carvosso of Mousehole May 1771, talking about the methodist group lead by John Harvey, and Richard Wright going to America [The Great Efficacy of Simple Faith in the Atonment of Christ Exemplified in a Memoir of Mr William Carvosso, Sixty years a class-leader in th eWesley Methodist Connection](https://play.google.com/books/reader?id=vEZEAQAAMAAJ&hl=en_AU&pg=GBS.PA34)
 
 
 ## 1769 America
