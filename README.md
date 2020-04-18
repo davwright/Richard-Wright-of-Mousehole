@@ -14,7 +14,12 @@ William Carvosso of Mousehole May 1771, talking about the methodist group lead b
 ## Methodist Itinerancy 1770
 Richard *had been received on trial into the Methodist Itinerancy*
 
-## Methodist Conference 17771
+## 28th Methodist Conference 1771
+* Mr. Wesley published his "Thoughts on Public Affairs"
+* Mr. Shirley and his friends came to project against the propositions.
+* Mr. Jospeh Benson admitted on trial
+* Messrs. Asbury and Wright sent to America.
+[The Methodist Magazine and Quarterly Review, Volume 20](https://books.google.at/books?id=GpEeAQAAMAAJ&pg=PA290&lpg=PA290&dq=Methodist+Conference+1771&source=bl&ots=JoOA9ZMozj&sig=ACfU3U1nhx_A2Ui5ePlafSxWe1CucrX7ig&hl=en&sa=X&ved=2ahUKEwjOx6j_zfLoAhWkmIsKHf0fBh0Q6AEwBXoECAkQQQ#v=onepage&q=Methodist%20Conference%201771&f=false)
 *Richard Wright, a plain humble fisherman from the west of Cornwall, who had been received on trial into the Methodist Itinerancy the preceding year, offered likewise to go, that as a Gospel-fisher he might catch me. The Conference Minutes say, @Our brethren in America call aloud for help. Who are willing to go over and help them? Five were willing. The two appointed were Francis Asbury and Richard Wright*
 [The Wesleyan-Methodist Magazine, Volume 5, Part 1](https://books.google.at/books?id=N3MoAAAAYAAJ&pg=PA388&lpg=PA388&dq=richard+wright+wesleyan+conference&source=bl&ots=sU47EJ9s1Q&sig=ACfU3U3dHHQfYWw77s9i4rUMred4gqOhxA&hl=en&sa=X&ved=2ahUKEwibwMq4u9PoAhVHwqYKHfK2DtgQ6AEwA3oECAwQNg#v=onepage&q=richard%20wright%20wesleyan%20conference&f=false)
 
