@@ -11,7 +11,10 @@ John Harvey lead a Methodist group in his house in Mousehole
 ## Young Richard
 William Carvosso of Mousehole May 1771, talking about the methodist group lead by John Harvey, and Richard Wright going to America https://play.google.com/books/reader?id=vEZEAQAAMAAJ&hl=en_AU&pg=GBS.PA34
 
-## Methodist Conference 1770 71(?)
+## Methodist Itinerancy 1770
+Richard *had been received on trial into the Methodist Itinerancy*
+
+## Methodist Conference 17771
 *Richard Wright, a plain humble fisherman from the west of Cornwall, who had been received on trial into the Methodist Itinerancy the preceding year, offered likewise to go, that as a Gospel-fisher he might catch me. The Conference Minutes say, @Our brethren in America call aloud for help. Who are willing to go over and help them? Five were willing. The two appointed were Francis Asbury and Richard Wright*
 [The Wesleyan-Methodist Magazine, Volume 5, Part 1](https://books.google.at/books?id=N3MoAAAAYAAJ&pg=PA388&lpg=PA388&dq=richard+wright+wesleyan+conference&source=bl&ots=sU47EJ9s1Q&sig=ACfU3U3dHHQfYWw77s9i4rUMred4gqOhxA&hl=en&sa=X&ved=2ahUKEwibwMq4u9PoAhVHwqYKHfK2DtgQ6AEwA3oECAwQNg#v=onepage&q=richard%20wright%20wesleyan%20conference&f=false)
 
