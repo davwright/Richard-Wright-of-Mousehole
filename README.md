@@ -11,6 +11,9 @@ John Harvey lead a Methodist group in his house in Mousehole
 ## Young Richard
 William Carvosso of Mousehole May 1771, talking about the methodist group lead by John Harvey, and Richard Wright going to America https://play.google.com/books/reader?id=vEZEAQAAMAAJ&hl=en_AU&pg=GBS.PA34
 
+
+## 1769 America
+*In 1769 Richard Boardman and Joseph Pillmoor came to the assistance of the infant societies [in America]. These were the first regular travelling ministers on the continent. They meeting with much success, and being able to report great openings for the spread of the gospel in America, in 1771 Francis Asbury and Richard Wright were sent over. Before this, the work had been principally confined to the cities; but Mr. Asbury, per that the country people more readily received the truth than those in the cities, led the way into the towns, villages, and sparsely populated places in the interior, in which he met with anticipated success; and it may justly be remarked that, to this day [1838] [The Methodist Magazine and Quarterly Review, Volume 20](https://books.google.at/books?id=GpEeAQAAMAAJ&pg=PA290&lpg=PA290&dq=Methodist+Conference+1771&source=bl&ots=JoOA9ZMozj&sig=ACfU3U1nhx_A2Ui5ePlafSxWe1CucrX7ig&hl=en&sa=X&ved=2ahUKEwjOx6j_zfLoAhWkmIsKHf0fBh0Q6AEwBXoECAkQQQ#v=onepage&q&f=false)
 ## Methodist Itinerancy 1770
 Richard *had been received on trial into the Methodist Itinerancy*
 
