@@ -1,4 +1,5 @@
 # Richard Wright of Mousehole (1743-1804)
+Richard Wright was the first of two missionaries that John Wesley sent to British America in 1771. His companion was the famous [Francis Asbury], *the Father of American Wesleyism*.
 
 ## Mousehole
 Mousehole is a picturesque fishing village in the South West corner of Cornwall only 15 km from Land's End.
