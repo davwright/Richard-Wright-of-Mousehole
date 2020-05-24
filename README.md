@@ -13,7 +13,7 @@ Richard Wright's ancestry can be traced back 5 generations to the Mousehole fish
 [extensive Wright family tree in Mousehole from 1580](http://www.mygenealogies.co.uk/Wright/WRIG-T6.htm)
 
 ## John Wesley (1703 - 1791) in Mousehole
-Wesley visits Cornwall in 1743, 1746  
+John Wesley preached at Land's End 17-18 Sept 1743 and returned in 1757. (Wesleys in Cornwall, page 93). On 25 August 1785, aged 82, he walked "down the rocks to the very edge of the water".
 Wesley preaches to 23,000 at [Gwenap pit](https://en.wikipedia.org/wiki/Gwennap), Cornwall, September 1, 1781.   He preached there 18 times betweeh 1762 and 1789.  
 John Harvey lead a Methodist society in his house in Mousehole
 
@@ -24,9 +24,12 @@ John Wesley focuses attention on America after the death of George Whitfield.
 
 ## Young Richard
 William Carvosso of Mousehole May 1771, talking about the methodist group lead by John Harvey, and Richard Wright going to America [34, The Great Efficacy]
+## 1766 
+The first Methodist society is founded in New York, in 1768 the built the first Methodist church there. (A Review, page 133).At the same time societies are formed in Maryland and Philadelphia.
 
 ## 1769 Methodist Conference Leeds
-*We have a pressing call from our brethren at New-York, who have built a preaching-house, to come over and help them. Who was willing to go? Richard Boardman and Joseph Pilmoor. what can we do further, in token of our brotherly love? Let us now make a collection among ourselves. This was immediately done, and out of it £50 were alloted towards the payment of their debt; and about £20 given to the brethren for their passage.* \[Compendium 194]
+*We have a pressing call from our brethren at New-York, who have built a preaching-house, to come over and help them. Who was willing to go? **Richard Boardman** and **Joseph Pilmoor**. what can we do further, in token of our brotherly love? Let us now make a collection among ourselves. This was immediately done, and out of it £50 were alloted towards the payment of their debt; and about £20 given to the brethren for their passage.* \[Compendium 194]
+Pilmoor itinerated in Cornwall and Wales before going to America. (https://www.ncpedia.org/biography/pilmore-joseph-or)
 *In 1769 Richard Boardman and Joseph Pillmoor came to the assistance of the infant societies [in America]. These were the first regular travelling ministers on the continent. They meeting with much success, and being able to report great openings for the spread of the gospel in America, in 1771 Francis Asbury and Richard Wright were sent over. Before this, the work had been principally confined to the cities; but Mr. Asbury, per that the country people more readily received the truth than those in the cities, led the way into the towns, villages, and sparsely populated places in the interior, in which he met with anticipated success; and it may justly be remarked that, to this day [1838]* [page 291, Review 20]
 ## Methodist Itinerancy 1770
 Richard *had been received on trial into the Methodist Itinerancy*
@@ -88,7 +91,7 @@ Prudence Johns
 Richard Wright, fisherman Mousehole 1767-1841 https://www.findagrave.com/memorial/197702604/richard-wright
 
 ### Richard Wright, Unitarian Preacher, 1815
- visited Mousehole in the 1815 https://play.google.com/books/reader?id=pgsLAAAAYAAJ&hl=en_AU&pg=GBS.PA399 
+ visited Mousehole in the 1815 (A Review, page 398) 
 He describes 500 listening in Newlyn sitting on grass, sand and rocks, many of them fishermen (never did I see a congregation more deeply affected than this was) and Mousehole to 250 "who listened attentively to a discourse on the love of God"
 
 ## Notes
@@ -102,3 +105,6 @@ There were 100 Wrights in Mousehole in 1851 http://www.mygenealogies.co.uk/Wrigh
 1. [The Great Efficacy of Simple Faith in the Atonment of Christ Exemplified in a Memoir of Mr William Carvosso, Sixty years a class-leader in the Wesley Methodist Connection](https://play.google.com/books/reader?id=vEZEAQAAMAAJ)  
 1. [A Compendium of the Laws and Regulations of Wesleyan Methodism](https://books.google.at/books?id=8wxDAQAAMAAJ)
 1. [The Wesleys in Cornwall, 1743-1789: A Record of Their Activities Town by Town](https://books.google.at/books?id=KBjCCgAAQBAJ&pg=PA98&lpg=PA98&dq=%22richard+wright%22+methodist+cornwall&source=bl&ots=WNmrz-POtG&sig=ACfU3U2pI_pJB6AZ5mW--gFuO0zhgiTAGg&hl=en&sa=X&ved=2ahUKEwip3f-glsHpAhVs16YKHXQHDBUQ6AEwAHoECAgQAQ#v=onepage&q&f=false)
+1. Unitarian preacher Richard Wright [A Review of the Missionary Life and Labors of Richard Wright](https://play.google.com/books/reader?id=pgsLAAAAYAAJ&hl=en_AU&pg=GBS.PA399)
+1. [History of Orange County, New York](https://books.google.at/books?id=iuXFDwAAQBAJ&pg=PA133&lpg=PA133&dq=%22richard+wright%22+methodist+cornwall&source=bl&ots=N0kz5uJdGw&sig=ACfU3U0zSRlF_XYxiYT9SetKEPBo2dsBcA&hl=en&sa=X&ved=2ahUKEwip3f-glsHpAhVs16YKHXQHDBUQ6AEwBXoECAoQAQ#v=onepage&q=%22richard%20wright%22%20methodist%20cornwall&f=false)
+1. [The Journal of Joseph Pilmore, Methodist Itinerant, for the Years August 1, 1769, to January 2, 1774](https://books.google.at/books/about/The_Journal_of_Joseph_Pilmore_Methodist.html?id=T9qNGQAACAAJ&redir_esc=y)
