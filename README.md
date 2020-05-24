@@ -101,3 +101,4 @@ There were 100 Wrights in Mousehole in 1851 http://www.mygenealogies.co.uk/Wrigh
 1. [A Review of the Missionary Life and Labours of Richard Wright, 1824](https://play.google.com/books/reader?id=pgsLAAAAYAAJ)  
 1. [The Great Efficacy of Simple Faith in the Atonment of Christ Exemplified in a Memoir of Mr William Carvosso, Sixty years a class-leader in the Wesley Methodist Connection](https://play.google.com/books/reader?id=vEZEAQAAMAAJ)  
 1. [A Compendium of the Laws and Regulations of Wesleyan Methodism](https://books.google.at/books?id=8wxDAQAAMAAJ)
+1. [The Wesleys in Cornwall, 1743-1789: A Record of Their Activities Town by Town](https://books.google.at/books?id=KBjCCgAAQBAJ&pg=PA98&lpg=PA98&dq=%22richard+wright%22+methodist+cornwall&source=bl&ots=WNmrz-POtG&sig=ACfU3U2pI_pJB6AZ5mW--gFuO0zhgiTAGg&hl=en&sa=X&ved=2ahUKEwip3f-glsHpAhVs16YKHXQHDBUQ6AEwAHoECAgQAQ#v=onepage&q&f=false)
