@@ -25,12 +25,13 @@ John Wesley focuses attention on America after the death of George Whitfield.
 ## Young Richard
 William Carvosso of Mousehole May 1771, talking about the methodist group lead by John Harvey, and Richard Wright going to America [34, The Great Efficacy]
 ## 1766 
-The first Methodist society is founded in New York, in 1768 the built the first Methodist church there. (A Review, page 133).At the same time societies are formed in Maryland and Philadelphia.
+The first Methodist society is founded in New York, in 1768 the built the first Methodist church there. (A Review, page 133).At the same time societies are formed in Maryland and Philadelphia.  
+Joseph Pilmoor "accepts full admission to the itinerancy" on the Cornwall East Circuit. he was earlier there on trial [https://www.francisasburytriptych.com/book-series/characters/joseph-pilmoor/]
 
 ## 1769 Methodist Conference Leeds
 *We have a pressing call from our brethren at New-York, who have built a preaching-house, to come over and help them. Who was willing to go? **Richard Boardman** and **Joseph Pilmoor**. what can we do further, in token of our brotherly love? Let us now make a collection among ourselves. This was immediately done, and out of it £50 were alloted towards the payment of their debt; and about £20 given to the brethren for their passage.* \[Compendium 194]
 Pilmoor itinerated in Cornwall and Wales before going to America. (https://www.ncpedia.org/biography/pilmore-joseph-or)
-*In 1769 Richard Boardman and Joseph Pillmoor came to the assistance of the infant societies [in America]. These were the first regular travelling ministers on the continent. They meeting with much success, and being able to report great openings for the spread of the gospel in America, in 1771 Francis Asbury and Richard Wright were sent over. Before this, the work had been principally confined to the cities; but Mr. Asbury, per that the country people more readily received the truth than those in the cities, led the way into the towns, villages, and sparsely populated places in the interior, in which he met with anticipated success; and it may justly be remarked that, to this day [1838]* [page 291, Review 20]
+*In 1769 Richard Boardman (New York) and Joseph Pillmoor (Philadelphia) came to the assistance of the infant societies [in America]. These were the first regular travelling ministers on the continent. They meeting with much success, and being able to report great openings for the spread of the gospel in America, in 1771 Francis Asbury and Richard Wright were sent over. Before this, the work had been principally confined to the cities; but Mr. Asbury, per that the country people more readily received the truth than those in the cities, led the way into the towns, villages, and sparsely populated places in the interior, in which he met with anticipated success; and it may justly be remarked that, to this day [1838]* [page 291, Review 20]
 ## Methodist Itinerancy 1770
 Richard *had been received on trial into the Methodist Itinerancy*
 
