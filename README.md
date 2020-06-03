@@ -42,18 +42,18 @@ Richard *had been received on trial into the Methodist Itinerancy*
 * Mr. Shirley and his friends came to project against the propositions.
 * Mr. Jospeh Benson admitted on trial
 * Messrs. Asbury and Wright sent to America.
-\[page 313, Review]
+\[page 313, Review]  
+*Richard Wright, a plain humble fisherman from the west of Cornwall, who had been received on trial into the Methodist Itinerancy the preceding year, offered likewise to go, that as a Gospel-fisher he might catch men. The Conference Minutes say, @Our brethren in America call aloud for help. Who are willing to go over and help them? Five were willing. The two appointed were Francis Asbury and Richard Wright*
+[The Wesleyan-Methodist Magazine, Volume 5, Part 1](https://books.google.at/books?id=N3MoAAAAYAAJ&pg=PA388&lpg=PA388&dq=richard+wright+wesleyan+conference&source=bl&ots=sU47EJ9s1Q&sig=ACfU3U3dHHQfYWw77s9i4rUMred4gqOhxA&hl=en&sa=X&ved=2ahUKEwibwMq4u9PoAhVHwqYKHfK2DtgQ6AEwA3oECAwQNg#v=onepage&q=richard%20wright%20wesleyan%20conference&f=false)
+www.methodistheritage.org.uk/archives-libraries-methodist.htm
 ## Wedneday 4 September 1771
 Richard and Francis set sail from a port near Bristol.
 ## Sunday 8 September 1771
-*Brother Wright preached a sermon on deck, and all the crew gave attention.* [Journal, page 47] 
-*Richard Wright, a plain humble fisherman from the west of Cornwall, who had been received on trial into the Methodist Itinerancy the preceding year, offered likewise to go, that as a Gospel-fisher he might catch me. The Conference Minutes say, @Our brethren in America call aloud for help. Who are willing to go over and help them? Five were willing. The two appointed were Francis Asbury and Richard Wright*
-[The Wesleyan-Methodist Magazine, Volume 5, Part 1](https://books.google.at/books?id=N3MoAAAAYAAJ&pg=PA388&lpg=PA388&dq=richard+wright+wesleyan+conference&source=bl&ots=sU47EJ9s1Q&sig=ACfU3U3dHHQfYWw77s9i4rUMred4gqOhxA&hl=en&sa=X&ved=2ahUKEwibwMq4u9PoAhVHwqYKHfK2DtgQ6AEwA3oECAwQNg#v=onepage&q=richard%20wright%20wesleyan%20conference&f=false)
-www.methodistheritage.org.uk/archives-libraries-methodist.htm
-
-## Ship Journey September 1771
-
+*Brother Wright preached a sermon on deck, and all the crew gave attention.* [Journal, page 47]   
+## 27 October 1771
+They arrived in Philadephia and visited a large church with a considerable congregation [Journal, page 51]
 ## In British America 1771
+*Richard Wright had served one year as an itinerant before he came to America. He preached in Pennsylvnia, New York, Delaware and Maryland, and returned to England in 1774. He was appointed to West Cornwall for two years, after which his name disappears from the **Minutes**. He did not succeed in America because, according to Asbury, he "was spoiled by gifts" and "he had not taste for spiritual subjects." (Asbury Journal May 29, 1774); This was also the judgment of Thomas Rankin, as stated in his Journal, now at Garret Bible Institute, page 101* [Journal Asbury page 124]
 https://archive.org/details/lettersjohnwesl00birrgoog/page/n289/mode/2up/search/richard+wright
 ![image](https://user-images.githubusercontent.com/17625240/79643368-ec750b00-81a2-11ea-8453-312abb1bd207.png)  
 http://www.historicstgeorges.org/museum  
