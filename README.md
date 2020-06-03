@@ -35,7 +35,7 @@ Pilmoor itinerated in Cornwall and Wales before going to America. (https://www.n
 ## Methodist Itinerancy 1770
 Richard *had been received on trial into the Methodist Itinerancy*
 
-## 28th Methodist Conference 1771
+## 28th Methodist Conference 7 August 1771, Bristol
 * Mr. Wesley published his "Thoughts on Public Affairs"
 * Mr. Shirley and his friends came to project against the propositions.
 * Mr. Jospeh Benson admitted on trial
