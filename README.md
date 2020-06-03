@@ -61,13 +61,18 @@ http://www.historicstgeorges.org/museum
 
 ## 1772
 
-## 1773
-*The first conference was held in Philadelphia. There were now 10 preachers and 1,160 members in the societies. At this time American preachers were reaised up and called into the work* \[Page 292, Vol20\]
+##Wed 14 - Fri 16 July 1773 . The First American Methodist Conference, Philadelphia
+10 preachers attended: Thomas Rankin, Richard Boardman, Joseph Pilmoor, Francis Asbury, Richard Wright, George Shadfield, Thomas Webb, John King, Abraham Whitworth, and Jospeh Yearbry.
+*Rankin says there were 7 preachers, besides Boardman and Pilmoor, who were to return to England...* [Episcopal,  page160] 
+
+*There were now 10 preachers  and 1,160 members in the societies. At this time American preachers were reaised up and called into the work* \[Page 292, Vol20\]
 
 *Soon after this, Messrs. Boardman and Pillmoor were recalled, and in 1773 Thomas Rankin and George Shadford were sent in their places. Mr Rankin was endowed with certain disciplinary powers for the regulation of the societies by Mr Wesley, as none others possessed before him. Of this there was much need, for before this discipline was almost wholly neglected, and many persons were connected with the societies who were not heartily attached to Methodism, of which things Mr. Asbury very much complains before this. These men were made a very great blessing to the people - Mr. Rankin, as a superintendent, in introducing discipline was almost wholly neglected, and many persons were connected with the societies who were not heartily attached to Methodism, of which things Mr. Asbury very much complains before this."* (page 292, The Methodist Query, Vol 20)
 
 ## 1774
-*17 preachers and 2,073 members* (page 292, The Methodist Query, Vol 20)
+*17 preachers and 2,073 members* (page 292, The Methodist Query, Vol 20)  
+Richard Wright returned to England with Joseph Yerbury [Rankin Journal, 81] in "early 1774" [Episcopal page 172] *He labored chiefly in Maryland and Virginia, though there is evidence that he spent part of 1772 in New York City" (refering to Wakely, chapter 24)*
+
 ## 1775
 *As the leading preachers were Englishmen, and avowedly attached to the interests of the mother country, they all left the country before the close of 1778, except Mr Asbury, who, being ardently attached to the infant socieites, now deserted by their chief shepherds, resolved to remain with them through those troublous times.* (page 292, Query)  
 *Martin Rodda and James Dempster were sent over; but the success of these men was not as great as could have been desired. They soon returned to England. \[...\] Mr Wesley's plan was to send two preachers every two years, which continued till eight were sent, and then the war \[of Independence\] prevented more* (Page 202, Query, Vol 20) 
@@ -109,6 +114,7 @@ There were 100 Wrights in Mousehole in 1851 http://www.mygenealogies.co.uk/Wrigh
 1. [The Journal and Letters of Francis Asbury], 1998 Wesleyan Heritage Publications
 1. [The Methodist Magazine and Quarterly Review, Volume 20, 1838](https://books.google.at/books?id=GpEeAQAAMAAJ)  
 1. [A Review of the Missionary Life and Labours of Richard Wright, 1824](https://play.google.com/books/reader?id=pgsLAAAAYAAJ)  
+1. [History of the Methodist Episcopal Church in the United States of America, Volume 1][https://books.google.at/books?id=ctwQAAAAIAAJ&pg=PA160&dq=thomas+rankin+journal+wright&hl=en&sa=X&ved=0ahUKEwj09raz6-XpAhUy-yoKHWJJDasQ6AEIMzAB#v=onepage&q&f=false]
 1. [The Great Efficacy of Simple Faith in the Atonment of Christ Exemplified in a Memoir of Mr William Carvosso, Sixty years a class-leader in the Wesley Methodist Connection](https://play.google.com/books/reader?id=vEZEAQAAMAAJ)  
 1. [A Compendium of the Laws and Regulations of Wesleyan Methodism](https://books.google.at/books?id=8wxDAQAAMAAJ)
 1. [The Wesleys in Cornwall, 1743-1789: A Record of Their Activities Town by Town](https://books.google.at/books?id=KBjCCgAAQBAJ&pg=PA98&lpg=PA98&dq=%22richard+wright%22+methodist+cornwall&source=bl&ots=WNmrz-POtG&sig=ACfU3U2pI_pJB6AZ5mW--gFuO0zhgiTAGg&hl=en&sa=X&ved=2ahUKEwip3f-glsHpAhVs16YKHXQHDBUQ6AEwAHoECAgQAQ#v=onepage&q&f=false)
