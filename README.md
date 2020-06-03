@@ -36,12 +36,17 @@ Pilmoor itinerated in Cornwall and Wales before going to America. (https://www.n
 Richard *had been received on trial into the Methodist Itinerancy*
 
 ## 28th Methodist Conference 7 August 1771, Bristol
+*At the conference it was proposed that some preachers should go over to the American Continent* [page 46, Asbury Journal]  
+*I returned to Bristol in the latter end of August, where Richard Wright was waiting for me" [page 47, Journal]  
 * Mr. Wesley published his "Thoughts on Public Affairs"
 * Mr. Shirley and his friends came to project against the propositions.
 * Mr. Jospeh Benson admitted on trial
 * Messrs. Asbury and Wright sent to America.
 \[page 313, Review]
-
+## Wedneday 4 September 1771
+Richard and Francis set sail from a port near Bristol.
+## Sunday 8 September 1771
+*Brother Wright preached a sermon on deck, and all the crew gave attention.* [Journal, page 47] 
 *Richard Wright, a plain humble fisherman from the west of Cornwall, who had been received on trial into the Methodist Itinerancy the preceding year, offered likewise to go, that as a Gospel-fisher he might catch me. The Conference Minutes say, @Our brethren in America call aloud for help. Who are willing to go over and help them? Five were willing. The two appointed were Francis Asbury and Richard Wright*
 [The Wesleyan-Methodist Magazine, Volume 5, Part 1](https://books.google.at/books?id=N3MoAAAAYAAJ&pg=PA388&lpg=PA388&dq=richard+wright+wesleyan+conference&source=bl&ots=sU47EJ9s1Q&sig=ACfU3U3dHHQfYWw77s9i4rUMred4gqOhxA&hl=en&sa=X&ved=2ahUKEwibwMq4u9PoAhVHwqYKHfK2DtgQ6AEwA3oECAwQNg#v=onepage&q=richard%20wright%20wesleyan%20conference&f=false)
 www.methodistheritage.org.uk/archives-libraries-methodist.htm
@@ -101,6 +106,7 @@ There were 100 Wrights in Mousehole in 1851 http://www.mygenealogies.co.uk/Wrigh
 ![image](https://user-images.githubusercontent.com/17625240/79643572-e2074100-81a3-11ea-8d42-8028577d736e.png)
 
 # References 
+1. [The Journal and Letters of Francis Asbury], 1998 Wesleyan Heritage Publications
 1. [The Methodist Magazine and Quarterly Review, Volume 20, 1838](https://books.google.at/books?id=GpEeAQAAMAAJ)  
 1. [A Review of the Missionary Life and Labours of Richard Wright, 1824](https://play.google.com/books/reader?id=pgsLAAAAYAAJ)  
 1. [The Great Efficacy of Simple Faith in the Atonment of Christ Exemplified in a Memoir of Mr William Carvosso, Sixty years a class-leader in the Wesley Methodist Connection](https://play.google.com/books/reader?id=vEZEAQAAMAAJ)  
