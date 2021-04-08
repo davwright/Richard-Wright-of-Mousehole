@@ -14,9 +14,8 @@ Richard Wright's ancestry can be traced back 5 generations to the Mousehole fish
 
 ## John Wesley (1703 - 1791) in Mousehole
 John Wesley preached at Land's End 17-18 Sept 1743 and returned in 1757. (Wesleys in Cornwall, page 93). On 25 August 1785, aged 82, he walked "down the rocks to the very edge of the water".
-Wesley preaches to 23,000 at [Gwenap pit](https://en.wikipedia.org/wiki/Gwennap), Cornwall, September 1, 1781.   He preached there 18 times betweeh 1762 and 1789.  
-John Harvey lead a Methodist society in his house in Mousehole
-
+Wesley preached to 23,000 at [Gwenap pit](https://en.wikipedia.org/wiki/Gwennap), Cornwall, September 1, 1781.   He preached there 18 times between 1762 and 1789.  
+John Harvey lead a Methodist society in his house in Mousehole. Richard Wright's son Martin married John Harvey's granddaughter Elizabeth Harvey in 1778. Martin  & Elizabeth were the parents of Joseph Wright 1808-1853. The name "Harvey" was passed down through the Wright family for 6 generations to Donald Harvey Wright 1927-2014.
 
 ## George Whitfield in America 7 times during 1738-1770
 George Whitfield traveled from Georgia to New England in 1738 and visited America 7 times until his death in 1770. He *formed no socieities of his own, but left his converts to the care of the ordinary pastors.. \[but\] the leaven of Calvinism soon destroying fair fruits; while it is remarkable that the same work in England, under Mr. Wesley, assisted by **young and illiterate lay-preachers**, guided by a differenst system of doctrine and discipline, constantly flourished.* (page 290, Query)  
