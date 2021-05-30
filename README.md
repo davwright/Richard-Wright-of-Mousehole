@@ -46,7 +46,7 @@ Richard *had been received on trial into the Methodist Itinerancy*
 [The Wesleyan-Methodist Magazine, Volume 5, Part 1](https://books.google.at/books?id=N3MoAAAAYAAJ&pg=PA388&lpg=PA388&dq=richard+wright+wesleyan+conference&source=bl&ots=sU47EJ9s1Q&sig=ACfU3U3dHHQfYWw77s9i4rUMred4gqOhxA&hl=en&sa=X&ved=2ahUKEwibwMq4u9PoAhVHwqYKHfK2DtgQ6AEwA3oECAwQNg#v=onepage&q=richard%20wright%20wesleyan%20conference&f=false)
 www.methodistheritage.org.uk/archives-libraries-methodist.htm
 ## Wedneday 4 September 1771
-Richard and Francis set sail from a port near Bristol.
+Richard and Francis set sail from Pill near Bristol.
 ## Sunday 8 September 1771
 *Brother Wright preached a sermon on deck, and all the crew gave attention.* [Journal, page 47]   
 ## 27 October 1771
