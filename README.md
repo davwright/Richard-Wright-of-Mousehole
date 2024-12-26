@@ -36,7 +36,7 @@ Richard *had been received on trial into the Methodist Itinerancy*
 
 ## 28th Methodist Conference 7 August 1771, Bristol
 *At the conference it was proposed that some preachers should go over to the American Continent* [page 46, Asbury Journal]  
-*I returned to Bristol in the latter end of August, where Richard Wright was waiting for me" [page 47, Journal]  
+"I returned to Bristol in the latter end of August, where Richard Wright was waiting for me" [page 47, Journal]  
 * Mr. Wesley published his "Thoughts on Public Affairs"
 * Mr. Shirley and his friends came to project against the propositions.
 * Mr. Jospeh Benson admitted on trial
@@ -60,11 +60,11 @@ http://www.historicstgeorges.org/museum
 
 ## 1772
 
-##Wed 14 - Fri 16 July 1773 . The First American Methodist Conference, Philadelphia
+## Wed 14 - Fri 16 July 1773 . The First American Methodist Conference, Philadelphia
 10 preachers attended: Thomas Rankin, Richard Boardman, Joseph Pilmoor, Francis Asbury, Richard Wright, George Shadfield, Thomas Webb, John King, Abraham Whitworth, and Jospeh Yearbry.
-*Rankin says there were 7 preachers, besides Boardman and Pilmoor, who were to return to England...* [Episcopal,  page160] 
+*Rankin says there were 7 preachers, besides Boardman and Pilmoor, who were to return to England...* [Episcopal,  page 160] 
 
-*There were now 10 preachers  and 1,160 members in the societies. At this time American preachers were reaised up and called into the work* \[Page 292, Vol20\]
+*There were now 10 preachers  and 1,160 members in the societies. At this time American preachers were reaised up and called into the work* \[Page 292, Vol 20\]
 
 *Soon after this, Messrs. Boardman and Pillmoor were recalled, and in 1773 Thomas Rankin and George Shadford were sent in their places. Mr Rankin was endowed with certain disciplinary powers for the regulation of the societies by Mr Wesley, as none others possessed before him. Of this there was much need, for before this discipline was almost wholly neglected, and many persons were connected with the societies who were not heartily attached to Methodism, of which things Mr. Asbury very much complains before this. These men were made a very great blessing to the people - Mr. Rankin, as a superintendent, in introducing discipline was almost wholly neglected, and many persons were connected with the societies who were not heartily attached to Methodism, of which things Mr. Asbury very much complains before this."* (page 292, The Methodist Query, Vol 20)
 
@@ -73,7 +73,7 @@ http://www.historicstgeorges.org/museum
 Richard Wright returned to England with Joseph Yerbury [Rankin Journal, 81] in "early 1774" [Episcopal page 172] *He labored chiefly in Maryland and Virginia, though there is evidence that he spent part of 1772 in New York City" (refering to Wakely, chapter 24)*
 
 ## 9 May 1774
-*Wright had been successfully at work, meanwhile, in Virgina, and ont he 9th of May, 1774, on his return, he cheered Asbury with good news. "Mr. Wright," he says, "arrived today from Virginia. He gave us a circumstantial account of the work of God in thos eparts. One house of worship is built, and another in contemplation; two or three more preachers are gone out upon the itinerant plan; and in some parts the congreations consist of two or three thousand people. But some evlidminded persons have opposed the action of toleration, and threatened to improsion him. May the Lord turn their hearts and make them partakers of his great salvation!" The first church here mentioned became famous in after years as Yeargon's Chapel," the first Methodist ediface in Virginia;
+*Wright had been successfully at work, meanwhile, in Virgina, and on the 9th of May, 1774, on his return, he cheered Asbury with good news. "Mr. Wright," he says, "arrived today from Virginia. He gave us a circumstantial account of the work of God in thos eparts. One house of worship is built, and another in contemplation; two or three more preachers are gone out upon the itinerant plan; and in some parts the congreations consist of two or three thousand people. But some evlidminded persons have opposed the action of toleration, and threatened to improsion him. May the Lord turn their hearts and make them partakers of his great salvation!" The first church here mentioned became famous in after years as Yeargon's Chapel," the first Methodist ediface in Virginia;
 ## 1775
 *As the leading preachers were Englishmen, and avowedly attached to the interests of the mother country, they all left the country before the close of 1778, except Mr Asbury, who, being ardently attached to the infant socieites, now deserted by their chief shepherds, resolved to remain with them through those troublous times.* (page 292, Query)  
 *Martin Rodda and James Dempster were sent over; but the success of these men was not as great as could have been desired. They soon returned to England. \[...\] Mr Wesley's plan was to send two preachers every two years, which continued till eight were sent, and then the war \[of Independence\] prevented more* (Page 202, Query, Vol 20) 
